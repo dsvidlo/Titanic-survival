@@ -1,1 +1,1 @@
-Little bid playing with figures here
+Little bit playing with figures here
